@@ -1,2 +1,0 @@
-# mrfoxlr.github.io
-homepage
